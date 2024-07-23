@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @en-bea
+- 👀 I’m interested in enhypen!!
+- 🌱 I’m currently learning phyton
+- 😄 Pronouns: she
+- ⚡ Fun fact: ni-ki is my bf
